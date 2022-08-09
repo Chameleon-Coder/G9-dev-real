@@ -1,4 +1,4 @@
-### h is the not best letter
+### Darik didn't spam so g3tr3kt 
 
 <!--
 **G9-dev-real/G9-dev-real** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
